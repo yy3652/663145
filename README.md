@@ -23,4 +23,4 @@
 如果你正在寻找一个真正稳定、安全、持续更新的日本AV免费观看平台，我们诚邀你将本站加入收藏夹，每日访问，第一时间获取最新资源与女优动态，体验高质量的成人内容服务。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/yy3652/663145 ）</span>
